@@ -1,5 +1,9 @@
-<p align="center"> art by wuhluwhu <a href="https://www.tumblr.com/wuhluwhu">(+)</a>
-<p align="center"> <img src="https://i.ibb.co/gb6gPLgr/Untitled261-20250629182924.png"width=240>
-<p align="center"> <img src="https://i.ibb.co/mFqNFTRq/IMG-7666.png"width=300>
-  
-<p align="center"> <img src="https://i.ibb.co/k6Qm1GnN/Untitled269-20250629184648.png"width=75> <img src="https://i.ibb.co/HTRYC4T5/IMG-7005.png"width=80> <img src="https://i.ibb.co/yn2Qt3G8/IMG-6980.png"width=80>
+<p align="center"> 🍊 art by wuhluwhu <a href="https://www.tumblr.com/wuhluwhu">(+)</a>
+<p align="center"> <img src="https://i.ibb.co/JjrjX9Sj/Untitled274-20250629205521.png"width=450>
+<p align="center"> +<img src="https://i.ibb.co/mFqNFTRq/IMG-7666.png"width=340>+
+<p align="center"> ꒰♡˃̶̤́ ꒳ ˂̶̤̀ ꒱ .    mako , jar / ban selo <img src="https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif">  . he/him 16
+<p align="center"> <img src="https://pixels.crd.co/assets/images/gallery10/69db8a45.gif?v=875a4f74)![image](https://pixels.crd.co/assets/images/gallery10/e7d01dd0.gif?v=875a4f74"> ·͙໒꒱  c'link & fictkin <img src="https://64.media.tumblr.com/517db57ed8af2919bb2638a471661405/e8d3e34ff8ef04b8-00/s75x75_c1/89bbb851eff0a215b33fbc3ad9730d2343cd7b77.gif">    audhd , egoist +   borderline <img src="https://pixels.crd.co/assets/images/gallery40/e23a4966.gif?v=875a4f74"> ꒰ᐢ. .ᐢ꒱
+<p align="center"> <img src="https://64.media.tumblr.com/a061dc1bc698c43f31cb2ec8e4ff7ae4/36461b982be8e5de-7a/s75x75_c1/539714c5a7a3c11beebc50dd0ae45eba10b037f8.gifv"> <a href="https://phighting.miraheze.org/Ban_Hammer">01</a> , <a href="https://en.wikipedia.org/wiki/Sid_Jenkins">02</a> , <a href="https://pacificrim.fandom.com/wiki/Mako_Mori">03</a> && <a href="https://mythcommunity.fandom.com/wiki/SELOZAR">04</a> meee .....
+<p align="center"> +<img src="https://i.ibb.co/mFqNFTRq/IMG-7666.png"width=340>+
+<p align="center"> <img src="https://i.ibb.co/k6Qm1GnN/Untitled269-20250629184648.png"width=75> <img src="https://i.ibb.co/HTRYC4T5/IMG-7005.png"width=80> <img src="https://i.ibb.co/yn2Qt3G8/IMG-6980.png"width=80> <img src="https://64.media.tumblr.com/9cef35923428be988a44c60f51409e74/cdae7369edfe0a2a-c7/s100x200/bfcae010899c2b8453580d69d78d9065a89faedf.gifv"width=80>
+<p align="center"> ꒰ঌ <img src="https://i.ibb.co/67n13BSn/IMG-6065.gif"width=230> ໒꒱
