@@ -1,5 +1,5 @@
 <p align="center"> 🍊 art by wuhluwhu <a href="https://www.tumblr.com/wuhluwhu">(+)</a>
-<p align="center"> <img src="https://i.ibb.co/JjrjX9Sj/Untitled274-20250629205521.png"width=450>
+<p align="center"> <img src="https://i.ibb.co/JjrjX9Sj/Untitled274-20250629205521.png"width=400>
 <p align="center"> +<img src="https://i.ibb.co/mFqNFTRq/IMG-7666.png"width=340>+
 <p align="center"> ꒰♡˃̶̤́ ꒳ ˂̶̤̀ ꒱ .    mako , jar / ban selo <img src="https://64.media.tumblr.com/01559b56e79c4150e03aef690788aed9/39e4a3799b55f633-ee/s75x75_c1/83e007f2f9e1eb67eaf4397358651798a8a8827f.gif">  . he/him 16
 <p align="center"> <img src="https://pixels.crd.co/assets/images/gallery10/69db8a45.gif?v=875a4f74)![image](https://pixels.crd.co/assets/images/gallery10/e7d01dd0.gif?v=875a4f74"> ·͙໒꒱  c'link & fictkin <img src="https://64.media.tumblr.com/517db57ed8af2919bb2638a471661405/e8d3e34ff8ef04b8-00/s75x75_c1/89bbb851eff0a215b33fbc3ad9730d2343cd7b77.gif">    audhd , egoist +   borderline <img src="https://pixels.crd.co/assets/images/gallery40/e23a4966.gif?v=875a4f74"> ꒰ᐢ. .ᐢ꒱
